@@ -1,0 +1,102 @@
+# Ninomae Ina'nis – TAKO∞TAKOVER
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Enlightened by the powers that be
+The ruler of a world run on INAsanity
+It’s clear to me they still can’t see
+I’m just a normal girl
+Empowered by the Ancient One’s call
+We’re gonna be punstoppable, we’re not a cult
+Nonsensical and nautical adventures lie in
+wait!!
+Gimme a ONE EIGHT!!
+ICHI! HACHI! TAKODACHI!
+ICHI! HACHI! TAKODACHI!
+Ina Ina Ina
+Ina Ina
+(Woo)
+俺のイナの世界線
+守るためにタコになろう！！
+(OISHO!!)
+ICHI! HACHI! TAKODACHI!
+ICHI! HACHI! TAKODACHI!
+Ina Ina Ina
+Ina Ina
+いいタコになりますように
+INAsanityで踊りましょう！
+(OISHO!!)
+Think of all that you could be…
+We’re talking evolution, leave it all to me!
+Maybe just a touch of purple ink…
+What’cha think?
+It’s a song you can’t ignore
+The Ancient Ones are calling you to be so much
+more!
+Just put your hand in mine and be reborn…
+INA blink!
+Tell me WAHt those legs are for?
+(俺のイナ運ぶためです！)
+You could use 6 more!
+(感謝感謝！！ありがたい！！！)
+We could all get matching ears!
+They aren’t really ears though…
+(Eh-??)
+Sleepy eyes to fight your fears!
+(例えばイナいないの世界！！！)
+Alright, listen to my song, am I striking a
+chord with you?
+Stringing you along, so don’t let me get bored
+of you!
+80 million strong and we’ve still got some more
+to do
+Everybody shout! World DomINAtion!!!
+Can I bank on your emotion?
+Do I have you invested?
+I don’t WAHnna hear you say that you’re not
+INAterested!
+Your unwavering devotion isn’t all I’ve
+requested
+Do you care? Are you aware that you’re my
+dearest creations?!
+Oya oya! A cute little takodachi found its way
+here.
+Experimentation might be necessary…
+Takos….we HAVE to cook!!
+(いいタコだちの作り方！)
+ひっくりかえして　丸くして (Nice!!)
+コロコロまわして　焦がさずに (いいね!)
+外はカリっと　中ふわふわ
+できたらソースで　さあいただき！
+By the powers that be
+The ruler of a world run on INAsanity
+It’s clear to me they still can’t see
+I’m just a normal girl!
+Empowered by the Ancient One’s call
+We’re gonna be punstoppable, we’re not a cult
+Nonsensical and nautical adventures lie in wait
+Let’s takobout the future to be
+Rewriting all of history in urgency
+With cookies as our currency,
+This place can finally heal!
+Ina-subordination won’t fly
+Or else I’m making Takoyaki tabehouDIE
+No doubt about it
+Scream and shout it
+Welcome to my WAHrld!!
+(CHANT REPEAT)
+So, it all goes back to eight and one
+It’s only world domination, and we’ve just
+begun
+Ah, what a place of never ending fun!
+I want the world dyed in violet before I’m
+done!
+(X2)
+Ina Ina Ina!
+Ina Ina!
+Ina Ina Ina!
+Ina Ina!
+Ina Ina Ina!
+Ina Ina!
+```
