@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "TAKO∞TAKOVER",
+  "base_artist": "Ninomae Ina'nis",
+  "createdAt": "2026-01-14T04:47:14.516963Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "TAKO∞TAKOVER",
+      "artist": "Ninomae Ina'nis",
+      "has_synced": false,
+      "path": "select/pl_01_TAKO∞TAKOVER_Ninomae_Ina'nis.txt"
+    }
+  ]
+}
